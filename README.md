@@ -1,2 +1,1 @@
-Come on everyone.
-I'm your master,fuck you.
+I'm in here learn Git,and try it again and again.
