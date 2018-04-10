@@ -10,4 +10,4 @@ At any time, these contents are welcome to criticize and correct.
 Thank you Everyone. 
 
 [CONTACT]
-Email: huangyong8585@126.com   
+Email: huangyong8585@126.com
